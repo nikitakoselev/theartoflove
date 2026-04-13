@@ -1,0 +1,1 @@
+I will create a world known family of startups which will improve my life and lives of others, in a good way. Make love, not war.
