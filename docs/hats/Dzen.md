@@ -1,1 +1,0 @@
-Simplify my life so only stuff that really matters for my life goal and my life values is left.
