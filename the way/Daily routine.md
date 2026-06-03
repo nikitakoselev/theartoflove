@@ -1,7 +1,7 @@
-#Love
+# Love 
 
-##Self-care
-##Growth
-##Work
-##Dzen
-##Rest
+## Self-care
+## Growth
+## Work
+## Dzen
+## Rest
