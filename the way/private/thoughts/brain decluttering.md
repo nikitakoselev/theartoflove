@@ -6,3 +6,4 @@ Tell team about my attendance of checkign a flat
 What is "commitment culture?
 Growth starts with self-care
 
+Be conscious in meetins, like when I am walking
